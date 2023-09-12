@@ -1,4 +1,4 @@
-### Hi there 👋
+### Gachon University, School of Computing, Freshman
 
 <!--
 **junho7904/junho7904** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
